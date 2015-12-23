@@ -1,3 +1,3 @@
-Fires burn bright tonight, 
-Gasoline all over here, 
+Fires burn bright tonight,  
+Gasoline all over here,  
 Destroying the room

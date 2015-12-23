@@ -1,2 +1,2 @@
-Twas a night within Hatmas, 
+Twas a night within Hatmas,  
 And all through the site,

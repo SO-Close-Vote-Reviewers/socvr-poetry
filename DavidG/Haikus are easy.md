@@ -1,3 +1,3 @@
-Haikus are easy 
-But sometimes they don't make sense 
+Haikus are easy  
+But sometimes they don't make sense  
 Refrigerator
